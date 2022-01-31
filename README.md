@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @cheetosndew
 - 👀 I’m interested in powaaaa!
-- 🌱 I’m currently learning random thangs
-- 💞️ I’m looking to collaborate on uhhh idk
+- 🌱 I’m currently learning random thangs....
+- 💞️ I’m looking to collaborate on uhhh idk....
 - 📫 How to reach me? yu cant.....sike!
 
 <!---
